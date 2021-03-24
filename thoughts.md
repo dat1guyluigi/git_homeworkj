@@ -5,4 +5,4 @@
 Strategies:
 1. Create a set schedule and stick to it! Studies show that people are happier when they have a routine they stick to every day.
 
-2. Stay in a positive mindset while doing the course when things get difficult. Try to remember what waits for you on the other side!
+2. Stay in a positive mindset while doing the course when things get difficult. Try to remember what waits for you on the other side!!
